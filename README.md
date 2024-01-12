@@ -1,4 +1,4 @@
-                           ♡❀˖⁺. ༶ ⋆˙⊹❀♡
+                                ♡❀˖⁺. ༶ ⋆˙⊹❀♡
 - .☽༊˚ Jo/Jose (Or any variant of "Jose" is okay!!) ESP - ENG OK - 18
 - .☽༊˚ ENTJ - 3w2 (Yes i'm into typology lol im the person in pdb who talks abt Kokoa)
 -  .☽༊˚ D4DJ is my main interest but im into Paralive, SB69, Love Live!,Kimisute and PJSK 
